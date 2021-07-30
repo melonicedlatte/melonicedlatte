@@ -5,3 +5,4 @@
 - 👯 I’m looking to collaborate on something interesting!
 - 😁 I wanna be a person who works fun!
 - 👏 I want to make good program!
+- 💁 If you have a question, please ask me!
