@@ -6,5 +6,5 @@
 - 😁 I wanna be a person who works fun!
 - 👏 I want to make good program!
 - 💁 If you have a question, please ask me!
-- 🤩 I love star 🐱🐱🐱!!
+- 🤩 I love star 🐱🐱🐱!!!
 - If you want to contact, please mail me!
