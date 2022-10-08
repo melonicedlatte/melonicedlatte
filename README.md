@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋👋
 
 - 🔭 I’m currently working on computer & programming!
 - 🌱 I’m currently learning everything! 
